@@ -14,4 +14,6 @@ ymaps made by ⸸♱♥IDK_FORCE♥♱⸸#7611
 ![Image description](https://cdn.discordapp.com/attachments/784243374269661195/967038930417487942/unknown.png)
 
 ![Image description](https://cdn.discordapp.com/attachments/784243374269661195/967039165994778674/unknown.png)
+
+![Image description](https://cdn.discordapp.com/attachments/784243374269661195/967039819303755816/unknown.png)
 <
